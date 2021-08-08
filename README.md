@@ -1,1 +1,0 @@
-# kaipulla.github.io
